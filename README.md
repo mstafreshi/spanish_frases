@@ -11,6 +11,6 @@ practicar y aprender español a través de frases reales cotidianas. Puedes ir a
  
 ## Versión en linea de todas las frases, نسخه‌ی آنلاین از تمام جملات
 
-Aquí podéis ver una versión en linea y compacta de todas las frases: <https://www.dokaj.ir/fa/post/spanish-phrase>
+Aquí podéis ver una versión en linea y compacta de todas las frases: <https://www.dokaj.ir/fa/post/spanish-phrases>
 
-در اینجا می‌توانید نسخه‌ی آنلاین تمام جملات را در فرمت مناسب ببینید: <https://www.dokaj.ir/fa/post/spanish-phrase>
+در اینجا می‌توانید نسخه‌ی آنلاین تمام جملات را در فرمت مناسب ببینید: <https://www.dokaj.ir/fa/post/spanish-phrases>
